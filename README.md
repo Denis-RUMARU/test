@@ -3,3 +3,5 @@
 I study in Netology
 
 25.06.2024
+
+😊
